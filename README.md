@@ -1,6 +1,25 @@
-# MonarchMusic
+# 𝕸𝖔𝖓𝖆𝖗𝖈𝖍 𝕸𝖚𝖘𝖎𝖈
+
+
+━━━━━━━━━━━━━━━━━━━━
+
+<h2 align="center">
+    ──「 𝕸𝖔𝖓𝖆𝖗𝖈𝖍 𝕸𝖚𝖘𝖎𝖈 」──
+</h2>
 
 <p align="center">
+  <img src="https://telegra.ph/file/95dbac8b48c8c8e4167ac.jpg">
+</p>
+
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [Shadow Monarch(https://t.me/MonarchRoBot)**_
+
+
+
+<p align="center">
+
+
+
+
   <h3 align="center">
     ─「 ᴅᴇᴩʟᴏʏ ᴏɴ ʜᴇʀᴏᴋᴜ 」─
 </h3>
