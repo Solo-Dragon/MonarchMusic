@@ -11,7 +11,7 @@
   <img src="https://telegra.ph/file/95dbac8b48c8c8e4167ac.jpg">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [Shadow Monarch(https://t.me/MonarchRoBot)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [Shadow Monarch](https://t.me/MonarchRoBot)**_
 
 
 
